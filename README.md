@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @lucas686768
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 oi, eu sou o @lucas686768
+- 👀 eu sou interresante porra nenhuma
+- 🌱 eu estou entudando coisas
+- 💞️ eu estou casado com o bolsonaro
+- 📫 me encontra no cabaré sempre estarei lá
 
 <!---
 lucas686768/lucas686768 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
