@@ -1,4 +1,5 @@
-https://tenor.com/pt-BR/view/anime-girl-light-blue-hair-anime-happy-anime-girl-blushing-anime-gif-18983492
+![](https://tenor.com/pt-BR/view/anime-girl-light-blue-hair-anime-happy-anime-girl-blushing-anime-gif-18983492)
+
 
 - 👋 oi, eu sou o @lucas686768
 - 👀 eu sou interresante em porra nenhuma
